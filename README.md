@@ -1,1 +1,1 @@
-# BOLG_MATE
+# SEDNA
